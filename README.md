@@ -1,0 +1,2 @@
+# HWID-LIST
+hwid listesi
