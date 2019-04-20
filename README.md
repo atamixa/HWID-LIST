@@ -1,2 +1,1 @@
-# HWID-LIST
-hwid listesi
+https://dl1.lim1.dosyaupload.com/n0iH?download_token=658af49ef54142d62be61d758fa606c64fcde0892ca14aff378fead6ccee0919
